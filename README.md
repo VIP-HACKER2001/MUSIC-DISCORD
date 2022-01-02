@@ -1,2 +1,2 @@
-# MUSIC-DISCORD
+# MUSIC-VIBE
 Music is life
